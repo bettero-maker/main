@@ -1,4 +1,4 @@
-# Portfolio — [Your Name]
+# Portfolio — Maximalisimus
 
 📍 Scotland | 🎓 Student (S4–S6)
 💡 Interests: Business • Marketing • AI • Design • Technology
